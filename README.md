@@ -1,4 +1,4 @@
-![jackpot](https://github.com/user-attachments/assets/1b86fa0d-97f3-4c49-9657-e0448bbb9314)# ' INFO '  ☆
+# INFO .ᐟ.ᐟ  ☆
 
 <img width="2048" height="209" alt="pretty flowers" src="https://github.com/user-attachments/assets/e56c72bc-db04-4a4f-8eea-a6f39762e452" />
 
