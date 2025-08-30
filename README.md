@@ -11,6 +11,8 @@ Approach and cuddle anytime, I'll take a bit to adapt to you then rant a lot. Wh
 
 <img width="2048" height="209" alt="pretty flowers" src="https://github.com/user-attachments/assets/78f1f9c7-29f4-4edb-8fde-b161c5e54f43" />
 
+oughhh... image dump...
+
 ![c69bcd0f62e996a3a55eee738c08c06e](https://github.com/user-attachments/assets/740db627-0f3b-4ca5-bacc-8190eac808cf) 
 never forget about the fact 
 that guest 1337 is literally me... 
