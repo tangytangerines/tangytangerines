@@ -16,7 +16,11 @@ oughhh... image dump...
 ![c69bcd0f62e996a3a55eee738c08c06e](https://github.com/user-attachments/assets/740db627-0f3b-4ca5-bacc-8190eac808cf) 
 
 never forget about the fact that guest 1337 is literally me... 
+
 ![jackpot](https://github.com/user-attachments/assets/8ac51521-0472-4849-9c73-bf7b57f37b6c)
+
 i think jackpot is neat  🏆🃏
+
 ![cabtubewoahahaha](https://github.com/user-attachments/assets/5eaf139a-8da6-4e59-861f-833790bcd390)
+
 NEVER FORGET ABOUT MY VIALFILE ERA 🧪📁
