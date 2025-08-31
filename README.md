@@ -6,7 +6,7 @@ Approach and cuddle anytime, I'll take a bit to adapt to you then rant a lot. Wh
 
 > 🌙 Doing something | ⛔ Won't be talkative | 💬 Ontab & chatty
 
-  Mainly looking for friends! Check out my [carrd](https://tangytangerines.carrd.co/#)/[pronouns](https://en.pronouns.page/@tangytangerines) page to know me a bit more ^_^ and feel free to add me on Discord (@tangytangerines) if you wanna chat more hehe!
+  Mainly looking for friends! Check out my [carrd](https://tangytangerines.carrd.co/#)/[pronouns](https://en.pronouns.page/@tangytangerines)/[strawpage](https://tangytangerines.straw.page/) page to know me a bit more ^_^ and feel free to add me on Discord (@tangytangerines) if you wanna chat more hehe!
   
 
 <img width="2048" height="209" alt="pretty flowers" src="https://github.com/user-attachments/assets/78f1f9c7-29f4-4edb-8fde-b161c5e54f43" />
