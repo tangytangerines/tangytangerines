@@ -2,7 +2,7 @@
 
 <img width="2048" height="209" alt="pretty flowers" src="https://github.com/user-attachments/assets/e56c72bc-db04-4a4f-8eea-a6f39762e452" />
 
-Approach and cuddle anytime, I'll take a bit to adapt to you then rant a lot. Whisper or friend me, innatentive to/disabled local chat.
+Approach anytime, I'll take a bit to adapt to you then rant a lot. Whisper or friend me, innatentive to/disabled local chat.
 
 > 🌙 Doing something | ⛔ Won't be talkative | 💬 Ontab & chatty
 
